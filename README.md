@@ -1,3 +1,3 @@
 # Hello World!
 * I'm DenysCrasav4ik!
-* THE END IS NIGH
+* I just am, and that's about everything you need to know.
